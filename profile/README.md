@@ -1,6 +1,6 @@
 Do you like playing games on your phone? How about earning rewards while having fun? With 91 Club Hack APK, you get the best of both worlds. This app is a favorite among Indian players, offering exciting color prediction games.
 
-What is 91 Club Hack APK?
+## What is 91 Club Hack APK?
 91 Club Hack APK isn’t just another gaming app. It offers color prediction games where you can play and win real rewards.
 
 **[⬇️ Download APK](https://rpy.club/lm/yF5iLbZB2p)**<br>
@@ -11,7 +11,7 @@ The app is built with user safety in mind, ensuring a secure gaming experience b
 
 It’s perfect for Indian users, supporting payments through UPI, Paytm, and bank transfers for easy deposits and withdrawals.
 
-Why 91 Club Mod APK?
+## Why 91 Club Mod APK?
 The 91 Club Mod APK stands out for offering color prediction games that let you earn real rewards. Designed with security and ease in mind, it’s a perfect choice for gamers in India.
 
 With support for convenient payment methods like UPI, Paytm, and bank transfers, managing your rewards is quick and easy.
